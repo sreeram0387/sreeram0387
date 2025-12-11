@@ -1,5 +1,4 @@
 - 👋 Hi, I’m @sreeram
-- 👀 I’m interested in playing games
 - 🌱 I’m currently learning coding
 - 💞️ I’m looking to collaborate on nothing
 - 📫 How to reach me jump from building 🏢 
